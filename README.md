@@ -10,5 +10,6 @@
 
 <p align="center">Also I'll be less online from 11.05. since I have important exams. Don't know during when, but probably 13.05. ;p
 
-<p align="center"> 
-  I'll work on this more later...
+<p align="center"> ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
+  
+  <p align="center">I'll work on this more later...
