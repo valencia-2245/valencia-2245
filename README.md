@@ -12,8 +12,6 @@
 
 <p align="center"> 16.12. is my birthday
 
-<p align="center"> ♡ I love my gf hi ♡
-
 <p align="center"> ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
   
   <p align="center">I'll work on this more later...
